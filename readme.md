@@ -52,3 +52,5 @@ noch schnell vor dem weltuntergang : )
 ---
 
 https://www.kleinanzeigen.de/s-anzeige/buchclub-trostberg/3461566139-187-5698
+
+https://www.facebook.com/groups/trostberger/posts/4327069570879316/
