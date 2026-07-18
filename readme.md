@@ -5,7 +5,7 @@
 die meisten bücher sind scheisse!  
 wir suchen die wenigen ausnahmen,  
 und tauschen unsere zusammenfassungen.  
-ein buchclub eben : )
+eben ein buchclub : )
 
 weil öffentliche büchereien sind "totzensiert"  
 (die wenigen guten bücher findet man dort sicher nicht)  
