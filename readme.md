@@ -36,6 +36,9 @@ aka: wie kommen wir von "nebeneinander" zu "miteinander"?
 wann und wo?  
 wir treffen uns ein mal pro woche, irgendwo...
 
+offline kontakt:  
+Milan Hauth, Jägerstraße 10, 83308 Trostberg
+
 wie?  
 ein bisschen wie "speed dating"  
 also wir bilden mehrere zweiergruppen  
